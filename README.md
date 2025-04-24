@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+姓名:劉威廷
+學校:國立中山大學
+系所:企業管理學系企業管理研究所碩士班
+年級:四
+學號:M104112026
+興趣：看youtube
+想說的話：很高興認識各位
